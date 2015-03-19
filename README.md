@@ -1,2 +1,6 @@
 # Day_One
-training 
+training learning is fun
+yum
+nom
+mmm
+
